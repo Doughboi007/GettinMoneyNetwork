@@ -1,2 +1,3 @@
 # GettinMoneyNetwork
-WorkS arterNotHarder
+"{×WorkSmarter;NotHarder"×}
+
